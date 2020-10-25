@@ -4,4 +4,4 @@
 * Rehogar todo (zanahorias y puerro) 
 * Luego cuando esta todo se hecha a la olla y se cubre de vino de jerez (no todo) y un poco de agua
 * Echar una pastilla de estarluz 
-* Cuando empieza a salir vapor dejar 30 min
+* Cuando empieza a salir vapor dejar 30 min (en el 6 y medio) que si no se quema
