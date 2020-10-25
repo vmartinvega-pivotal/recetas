@@ -1,0 +1,1 @@
+* Pimiento rojo y pimiento verde hecho trozos alargados. Se frien, cuando están un poco frito se hecha la cebolla hecha trozos tambien y se frie todo junto. Cuanto ya esta casi frito todo se hecha el pollo hecho trozos tambien (tres o 4 pechugas). Sin ningún tipo de salsa sale muy bueno. Las obleas tienen que ser las grandes, con las pequeñas sale muy mal
