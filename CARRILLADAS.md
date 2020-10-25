@@ -1,4 +1,4 @@
-* Paquete de carrilladas de (6 o 7)
+* Paquete de carrilladas de (6 o 7). Lavarlas y dejarlas escurrir un poco antes
 * Zanahoria hecha en trazos (una grande en rodajas o dos pequeñas) y un puerro en rodajas tambien
 * Sellar las carrilladas sin harina ni nada, solo sellar un poco
 * Rehogar todo (zanahorias y puerro) 
