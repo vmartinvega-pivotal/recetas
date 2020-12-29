@@ -2,6 +2,6 @@
 * Zanahoria hecha en trazos (una grande en rodajas o dos pequeñas) y un puerro en rodajas tambien
 * Sellar las carrilladas sin harina ni nada, solo sellar un poco
 * Rehogar todo (zanahorias y puerro) 
-* Luego cuando esta todo se hecha a la olla y se cubre de vino de jerez (un vaso) y (dos vasos) agua
+* Luego cuando esta todo se hecha a la olla y se cubre de vino de jerez (un vaso pequeño) y (6 vasos pequeños) agua
 * Echar una pastilla de estarluz 
 * Cuando empieza a salir vapor dejar 45 min (al 7)
