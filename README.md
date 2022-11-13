@@ -11,3 +11,5 @@
 [Caldillo de Patatas](./CALDILLO.md)
 
 [Albondigas](./ALBONDIGAS.md)
+
+[Arroz Yayi](./ARROZ_YAYI.md)
